@@ -2,8 +2,9 @@
 
 ### WORK ACCOUNT
 
+![giphy](https://user-images.githubusercontent.com/124777950/217512127-0f1af59b-b2e7-403a-902e-0c6324337b19.gif)
 
-![github](https://user-images.githubusercontent.com/124777950/217499055-d009d69c-9ebd-439a-8daf-48ce2e9062e7.gif)  
+
 
 ---------------------------------------------------------------------  
 
